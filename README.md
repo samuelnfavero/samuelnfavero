@@ -1,4 +1,4 @@
-### Olá, meu nome é Samuel. Tenho 25 anos e atualmente estou estudando para migrar para área de tecnologia. Bem vindo ao meu perfil :)
+### Olá, meu nome é Samuel, tenho 25 anos e atualmente estou estudando para migrar para área de tecnologia. Bem vindo ao meu perfil :)
 
 <br/>
 
